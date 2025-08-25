@@ -23,7 +23,7 @@ My goal is to strengthen my coding and problem-solving skills while gaining real
 
 ## Contact  
 - **Email:** [Arezoo.vanaki13@gmail.com](mailto:Arezoo.vanaki13@gmail.com)
-- **Blog:** [arezoo.com](https://arezoo05.wordpress.com/)
+- **Blog:** [arezoo.com](https://arezoovanaki.wordpress.com)
 
 ---
 
